@@ -1,6 +1,6 @@
 ### Hello friends 👋😊
 
-####My name is Lexi and I'm excited to be learning
+#### My name is Lexi and I'm excited to be learning
 
 - 🔥 I’m currently working on ...
   Making a [blog](https://www.eatgamelove.com/) with my boyfriend and best friend [@koderkow](https://github.com/KoderKow/KoderKow). I also helped to make the [DinnR](https://koderkow.shinyapps.io/dinnR/) app for vegan meal planning.
