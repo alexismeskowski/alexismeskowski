@@ -20,4 +20,4 @@
   [Examples](https://pronoun.is/she)
 
 - ⚡ Fun fact: ...
-  I'm a [certified health education specialist](https://www.sophe.org/careerhub/health-education-profession/) 🥑 and my favorite color is purple 💜
+  I'm a [certified health education specialist](https://www.sophe.org/careerhub/health-education-profession/) 🥑 and my favorite color is pink 💖
