@@ -12,7 +12,7 @@
   Video games 🎮 and sexual education 👌👈💕
 
 - 📫 How to reach me: ...
-  Twitter: [@therealactualtoilet](https://twitter.com/therealactualtoilet)
+  Twitter: [@actualtoilet](https://twitter.com/actualtoilet)
   Discord: TheRealActualToilet#5674
 
 - 😄 Pronouns: ...
